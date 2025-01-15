@@ -1,4 +1,4 @@
-# Combined Responses
+# G2
 
 ## 1
 Hast du ihre Bilder gesehen? 
